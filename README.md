@@ -1,2 +1,0 @@
-# myrummages
-buku conteng
